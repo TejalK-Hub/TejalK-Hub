@@ -1,4 +1,4 @@
-📈 Tejal K — Data for Impact
+📈 Tejal K: Data for Impact
 
 🔍 Passionate about using data to drive decisions and uncover insights.
 
